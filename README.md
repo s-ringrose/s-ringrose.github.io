@@ -1,1 +1,0 @@
-# s-ringrose.github.io
